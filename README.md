@@ -1,5 +1,3 @@
-# SHAIK NEHA SULTHANA
-Aspiring Data Scientist &amp; Analyst | SQL &amp; Python | Power BI | Microsoft Excel 
 
 🫠Hey there — so happy our paths crossed here.
 
